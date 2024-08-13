@@ -11,4 +11,3 @@
 
 - 📬 Reach out through the digital ether: pavankalyan.yes@gmail.com
 - 🌟 Cast spells with me on [LinkedIn](https://www.linkedin.com/in/pavan-kalyan-pk309356/) and [GitHub](https://github.com/pavan-kalyan0412)
--
